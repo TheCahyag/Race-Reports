@@ -40,11 +40,11 @@ Being new to distance running I had a few obstacles to overcome mostly relating 
 Got to the site around 8AM, the race started at 10AM so I was a tad early. But I had plenty of time to assess the weather in Lockport. The weather was pretty good all things considered, it was 25 degF, partly cloudy with a slight breeze. I was incredibly nervous so I took some time just to chill and mentally prepare myself. I also double checked to ensure I had everything I needed. 
 
 ### Race
-Mile 0-7: The path we were running on was pretty narrow, so the first mile or so was slow while everyone spread throughout the pathway. The first aid-station was around mile 7 and since I already had food and waterd on me I felt I didn't need to get anything there. Boy was that a lapse in judgement because I had forgotten I needed to checkin at every aid station, yikes! I didn't realize this mistake until a couple miles down the line (more on this later).
+Mile 0-7: The path we were running on was pretty narrow, so the first mile or so was slow while everyone spread throughout the pathway. The first aid-station was around mile 7 and since I already had food and water on me I felt I didn't need to get anything there. Boy was that a lapse in judgement because I had forgotten I needed to check in at every aid station, yikes! I didn't realize this mistake until a couple miles down the line (more on this later).
 
-Mile 7-13: These next few miles were mostly fine, I was starting to feel a slight pain in my legs at this point, but nothing too bad. 
+Mile 7-13: These next few miles were mostly fine, I was starting to feel a slight pain in my legs at this point, but nothing too bad. The route of the race was such that you ran 12.5 miles one way and 12.5 miles back so around mile 10 was when runners started passing me on their way back. It made me feel super good when any of them said "Good job" or "You're doing great" as they passed me so when ever I passed someone I would say the same thing to make others feel the same way :) At mile 12.5 the next aid station station came and I made sure to check in at this one.
 
-Mile 13-19:
+Mile 13-19: For the first 18 miles I was able to keep an 11 minute pace, seeing as my goal pace was 11:30 I was pretty happy how long I was able to maintain that. I was sticking to my nutrition plan thus far. I wasn't very hungry most of the time I hit my intervals to eat, but I knew I'd thank myself later and ate my energy bars anyway, haha. Unfortunately, around mile 18 is when the exhaustion and fatigue really started to hit me and I broke and had to do some walking.
 
 Mile 19-25:
 
