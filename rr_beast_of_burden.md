@@ -14,6 +14,10 @@
 | B | Finish without walking | *No* |
 | C | Finish sub five hours | *Yes* |
 
+### Pictures
+* [My mother's requested selfie](https://i.imgur.com/FqtHXin.jpg)
+* [Me right after I finished](https://i.imgur.com/uAE144b.jpg)
+
 ### Splits
 | Splits (miles) | Avg Pace |
 |------|------|
