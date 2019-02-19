@@ -15,7 +15,7 @@
 | C | Finish sub five hours | *Yes* |
 
 ### Pictures
-* [My mother's requested selfie at mile 15](https://i.imgur.com/FqtHXin.jpg)
+* [My mothers requested selfie at mile 15](https://i.imgur.com/FqtHXin.jpg)
 * [Me right after I finished](https://i.imgur.com/uAE144b.jpg)
 
 ### Splits
